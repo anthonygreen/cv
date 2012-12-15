@@ -1,7 +1,7 @@
 # [Anthony Green](contact@anthonygreen.me) #
 
 Skype: anthonycgreen                                                                          
-Github: [anthonygreen](http://www.github.com/anthonygreen)`  
+Github: [anthonygreen](http://www.github.com/anthonygreen)  
 Twitter: [anthonycgreen](http://www.twitter.com/anthonycgreen)
 
 ## Summary
