@@ -1,7 +1,6 @@
 # [Anthony Green](contact@anthonygreen.me) #
 
-Email: [contact@anthonygreen.me](contact@anthonygreen.me)                                       
-Mobile: 079 4125 3272                                                                           
+Skype: anthonycgreen                                                                          
 Github: [anthonygreen](http://www.github.com/anthonygreen)`  
 Twitter: [anthonycgreen](http://www.twitter.com/anthonycgreen)
 
